@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Blkswrn
+- 👀 I’m interested in game development 
+- 🌱 I’m currently studying towards my computer science degree.
+- 💞️ I’m looking to collaborate on beginner projects since I'm new to programming.
+- 📫 How to reach me @Blkswrn_ on ig
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I'm actually boring, no fun fact here.
